@@ -1,0 +1,2 @@
+# andrewshould-dev
+A strategic puzzle game made by an independent developer. Please support by throwing random code at me so that I can incorperate it in any way into the game. Mario is kidnapped by Andrew and forced to face a Puzzle Palace of doom. Esacape and find Andrew, take him down with the help of Hair O' Cup and Boog R. before he steals all the food from Dream Land. Fight Masked Andredede for a secret ending.
